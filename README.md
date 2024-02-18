@@ -1,4 +1,4 @@
-ZIONIST CRIMES AGAINST LEBANESE PEOPLE
+ZIONIST CRIMES AGAINST LEBANESE PEOPLE & Palestinian Refugees in Lebanon
 
 https://en.m.wikipedia.org/wiki/Palestinian_insurgency_in_South_Lebanon
 
