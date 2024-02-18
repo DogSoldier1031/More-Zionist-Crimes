@@ -1,5 +1,15 @@
 ZIONIST CRIMES AGAINST LEBANESE PEOPLE
 
+https://en.m.wikipedia.org/wiki/Palestinian_insurgency_in_South_Lebanon
+
+https://en.m.wikipedia.org/wiki/1982_Lebanon_War
+
+https://www.theguardian.com/world/2007/mar/09/syria.israelandthepalestinians
+
+https://en.m.wikipedia.org/wiki/Allegations_of_war_crimes_in_the_2006_Lebanon_War
+
+https://www.hrw.org/news/2006/08/02/israel/lebanon-end-indiscriminate-strikes-civilians
+
 https://en.m.wikipedia.org/wiki/Sabra_and_Shatila_massacre
 
 https://en.m.wikipedia.org/wiki/Qana_massacre
